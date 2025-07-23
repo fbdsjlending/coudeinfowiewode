@@ -1,1 +1,1 @@
-coudeinfowiewodehttps://test-phl-api.fyinformation.ccwowoinfo
+coudeinfowiewodehttps://api.loanjoy.shopwowoinfo
